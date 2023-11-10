@@ -5,7 +5,7 @@
 - 📫 How to reach me: zoya.worth (Discord)
 - 🍸 Off-topic discussions I'm interested: Culture, Gaming, Art, Mental Health, Advice and Math
 - 🍜 I like eating Udon, Ramen, Teriyaki, Chicken Rendang
-- 🤔 Disorder I actually have (and yes, I'm not faking it): Mild Autism
+- 🤔 Disorders I actually have (and yes, I'm not faking it): Mild Autism
 - 🫥 Might be busy doing something else so I'm 50/50 available.
 
 <!---
