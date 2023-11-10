@@ -8,7 +8,5 @@
 - 🤔 Disorders I actually have (and yes, I'm not faking it): Mild Autism
 - 🫥 Might be busy doing something else so I'm 50/50 available.
 
-<!---
-zohicodes/zohicodes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+what sorts of projects and repos do I do? i dunno, i just test random things and pray it works. 
+
