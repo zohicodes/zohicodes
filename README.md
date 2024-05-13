@@ -1,7 +1,7 @@
 - 🦉 Wuss good, I’m @zohicodes
 - 👀 I’m interested in programming, data research, writing, projects, web development and repositories
 - 🌱 I’m currently learning A.I
-- 📚 I’m looking to collaborate on any projects related to AI and programming/coding.
+- 📚 I’m looking to collaborate on any projects related to AI and programming/coding (food science even???).
 - 📫 How to reach me: zoya.worth (Discord)
 - 🍸 Off-topic discussions I'm interested: Culture, Gaming, Art, Mental Health, Advice and Math
 - 🍜 I like eating Udon, Ramen, Teriyaki, Chicken Rendang
