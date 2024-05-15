@@ -1,16 +1,12 @@
-- 🦉 Wuss good, I’m @zohicodes
-- 👀 I’m interested in programming, data research, writing, projects, web development and repositories
-- 🌱 I’m currently learning A.I
-- 📚 I’m looking to collaborate on any projects related to AI and programming/coding (food science even???).
-- 📫 How to reach me: zoya.worth (Discord)
-- 🍸 Off-topic discussions I'm interested: Culture, Gaming, Art, Mental Health, Advice and Math
-- 🍜 I like eating Udon, Ramen, Teriyaki, Chicken Rendang
-- 🤔 Disorders I actually have (and yes, I'm not faking it): Mild Autism
-- 🫥 Might be busy doing something else so I'm 50/50 available.
+Name's @zohicodes, but you can simply call me Zoya as a nick. Interested in programming, data research, writing, projects, web development and repositories. Currently learning A.I. Looking to collaborate on any projects related to AI and programming/coding (food science even???). A passionate (genius-y) gamer girl.
 
-what sorts of projects and repos do I do? i dunno, i just test random things and pray it works. 
+Off-topic discussions I'm interested: Culture, Gaming, Art, Mental Health, Advice and Math, tea | loves eating udon, ramen, noodles, chocolates, and chiken rendang 
+Most likely available on weekends.
 
-<!---
-zohicodes/zohicodes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+what sorts of projects and repos do I do? probably a mixture of jupiter and python. (may also use other languages!)
+
+How to reach me: zoya.worth (Discord)
+
+"𝐚𝐧 𝐢𝐧𝐭𝐫𝐨𝐯𝐞𝐫𝐭 𝐬𝐭𝐫𝐢𝐯𝐢𝐧𝐠 𝐟𝐨𝐫 𝐚 𝐛𝐚𝐥𝐚𝐧𝐜𝐞𝐝 𝐫𝐞𝐥𝐚𝐭𝐢𝐨𝐧𝐬𝐡𝐢𝐩. 🌿🍃" -> literally the personality of a green. (thanks thomas erikson!!)
+
+ıllı⌗﹏♡★ 𝖞𝖚𝖍.
