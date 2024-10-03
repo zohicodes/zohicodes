@@ -1,4 +1,4 @@
-Name's @zohicodes, but you can simply call me Zoya as a nick. Interested in programming, data research, writing, projects, web development and repositories. Currently learning A.I. Looking to collaborate on any projects related to AI and programming/coding (food science even???). A passionate (genius-y) gamer girl.
+It's Zoya here. Interested in programming, data research, writing, projects, web development and repositories. Currently learning A.I. Looking to collaborate on any projects related to AI and programming/coding (food science even???). A passionate (genius-y) gamer girl, playing Sims games and sandbox games.
 
 Off-topic discussions I'm interested: Culture, Gaming, Art, Mental Health, Advice and Math, tea | loves eating udon, ramen, noodles, chocolates, and chiken rendang 
 | Most likely available on weekends.
