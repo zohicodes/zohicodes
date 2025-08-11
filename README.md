@@ -1,10 +1,9 @@
-It's Zoya here. Interested in programming, data research, writing, projects, web development and repositories. Currently learning A.I. Looking to collaborate on any projects related to AI and programming/coding (food science even???). A passionate (genius-y) gamer girl, playing Sims games and other sorts of sandbox games.
+It's Zoya here. I'll be honest on why I created this account. My former section-head of my college class insisted intensely that we should create at least a github account for the sake of our 'portfolios' and internships. He forced us to do every single "neccessary" thing that fried our brains entirely, and it only took after my college class's first phase of internships to end to recover (oct-dec 2024). I never saw a good purpose in this account, but after my current college years end, I'll delete this entirely, and maybe re-create it to pursue on something else. 
 
-Off-topic discussions I'm interested: Culture, Gaming, Art, Mental Health, Advice and Math, tea | loves eating udon, ramen, noodles, chocolates, and chiken rendang 
-| Most likely available on weekends.
+Off-topic discussions I'm interested: Gaming, art, memes, health stuff, etc.
 
-what sorts of projects and repos do I do? probably a mixture of jupiter and python. (may also use other languages!)
+what sorts of projects and repos do I do? ask my lecturers.
 
-How to reach me: tumblr, discord (zando.worth), email (**ONLY** for business enquiries), any games you can find me in, and more... ig.
+How to reach me: ???
 
 𓂃˖˳·˖ ִֶָ ⋆🍃⋆ ִֶָ˖·˳˖𓂃 ִֶָ
